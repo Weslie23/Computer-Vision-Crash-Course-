@@ -8,4 +8,5 @@ Hello! I am Weslie Jee Catulay, I'm 20 Years old I'm a 3rd Year Computer Enginee
 
 You can also Email through this account: 📩@wesliejee@gmail.com for personal things and discussion
 
-<div class="tenor-gif-embed" data-postid="4141614690021201678" data-share-method="host" data-aspect-ratio="0.96988" data-width="100%"><a href="https://tenor.com/view/ryan-gosling-gif-4141614690021201678">Ryan Gosling GIF</a>from <a href="https://tenor.com/search/ryan+gosling-gifs">Ryan Gosling GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![ryan-gosling](https://github.com/user-attachments/assets/652321c3-4d13-4f2b-a44e-789ee4d00c81)
+
